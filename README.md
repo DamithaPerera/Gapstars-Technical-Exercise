@@ -1,1 +1,0 @@
-# Gapstars-Technical-Exercise
